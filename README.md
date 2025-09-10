@@ -6,4 +6,4 @@ Fundamental knowlage is here
 
 ## This mobile app will open new opportunities
 
-Full of not AI copied cod, this mobile app will change your prescription to the code! Follow as for more!
+Full of not an AI copied code, this mobile app will change your preception to the code! Follow as for more!
